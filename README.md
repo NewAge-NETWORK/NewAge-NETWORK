@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NewAge-NETWORK
+- 👀 I’m a growing minecraft server. You can join my discord at https://dsc.gg/newage-network/. 
+- 🌱 I’m currently developing a minecraft survival server.
+- 📫 https://dsc.gg/newage-network/
